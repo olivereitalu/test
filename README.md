@@ -10,7 +10,3 @@ d
 ddlkjh dkldhkl d
 
 dlkdj lkdd
-epoelköelö
-
-e
-elekelkjee
